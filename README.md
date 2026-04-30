@@ -1,3 +1,5 @@
+### 🌍 CV & Portefølje: [johanhansen.no](https://johanhansen.no)
+
 # 💫 About Me:
 🏥 Jobber i Helse Nord IKT (HNIKT)<br>🚀 Studert Space Science and Robotics <br>🩸 Aktiv Blodgiver 0+<br>🎮 Gamer<br>💻 Script og Automation Lord
 
